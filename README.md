@@ -1,5 +1,5 @@
 # DARKWEB LINKS 2023 ACCESS
-- For Reasearch use only
+- For Reasearch use only, use it at your own risk
 <h1>Dark Web Drug Vendors</h1>
 
 If you are a regular user of the internet and are looking to buy some Dark Web drugs, then you are at the right place. A well-known website list is given below to find your perfect dark web drug vendors:
